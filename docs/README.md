@@ -1,6 +1,6 @@
-## Agenda & dates
+## Itinerary
 
-I am following the recommended route by guide book "The GR20 Corsica - The High Level Route - By Paddy Dillon". I might skip some stages, and I might take longer due to bad weather. Overall, this agenda should be seen as a general guide and I might not stick to these dates, but I do plan on staying at the mentioned refuges.
+I am following the recommended route by guide book "The GR20 Corsica - The High Level Route - By Paddy Dillon". I might skip some stages, and I might take longer due to bad weather. Overall, this itinerary should be seen as a general guide and I might not stick to these dates, but I do plan on staying at the mentioned refuges.
 
 Click on the items to view more information. 
 
