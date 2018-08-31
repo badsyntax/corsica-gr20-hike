@@ -5,3 +5,8 @@ I am following the recommended route by guide book "The GR20 Corsica - The High 
 Click on the items to view more information. 
 
 <iframe src="https://calendar.google.com/calendar/embed?title=Corsia%20Hike&amp;showTitle=0&amp;showNav=0&amp;showDate=0&amp;showPrint=0&amp;showCalendars=0&amp;mode=AGENDA&amp;height=800&amp;wkst=2&amp;hl=en_GB&amp;bgcolor=%23FFFFFF&amp;src=asqneh1e8iokk96aag18hdqkek%40group.calendar.google.com&amp;color=%23333333&amp;ctz=Europe%2FMadrid" style="border-width:0" width="100%" height="600" frameborder="0" scrolling="no"></iframe>
+
+
+## Kit list
+
+<script src="https://lighterpack.com/e/fsjr50"></script><div id="fsjr50"></div>
